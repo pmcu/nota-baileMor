@@ -19,7 +19,7 @@ dhánacht agam féin tabhairt faoi sin.
 
 Maidir le hábhar suimiúil stairiúil a bhaineas leis an
 bhaile, ba cheart teacht ar a leithéid a bheith giota maith
-níos fusa in ré seo na ríomhairí agus na cumarsáide
+níos fusa i ré seo na ríomhairí agus na cumarsáide
 domhanda idir ríomhairí, thar mar a bhí in aimsir Henry
 Dobbin. Ar ndóighe, ní buntáiste í sin nach mbaineann a cuid
 deacrachtaí agus dúshlán féin léi. Is féidir barraíocht de
