@@ -19,7 +19,7 @@ dhánacht agam féin tabhairt faoi sin.
 
 Maidir le hábhar suimiúil stairiúil a bhaineas leis an
 bhaile, ba cheart teacht ar a leithéid a bheith giota maith
-níos fusa in aois seo na ríomhairí agus na cumarsáide
+níos fusa in ré seo na ríomhairí agus na cumarsáide
 domhanda idir ríomhairí, thar mar a bhí in aimsir Henry
 Dobbin. Ar ndóighe, ní buntáiste í sin nach mbaineann a cuid
 deacrachtaí agus dúshlán féin léi. Is féidir barraíocht de
@@ -28,7 +28,7 @@ An té a rachadh a chuartú ábhar staire, d'fhonn scríobh faoi
 thopaic ar leith, gheobhaidh sé léar millteanach dá leithéid
 ar an idirlíon, fríd *Google*  mar shampla. 
 
-Is maith sin agus an-mhaith, gan amhras, ach tiocfaidh an
+Is maith sin agus is an-mhaith é, gan amhras, ach tiocfaidh an
 t-am gan mhoill, ina mbeidh air roghanna a dhéanamh as measc
 an iliomad sonraí; agus an lód léitheoireachta féin a
 thiocfadh a dhéanamh roimh rogha ar bith, bainfidh sí an-rud
